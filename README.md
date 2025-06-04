@@ -1,2 +1,2 @@
-# sculpture-film-news-awards
+# https://ifpnews.com/iranian-filmmaker-top-honors-nyifa-short-film-soratgar/
 ## 🗞️ Latest News  **June 2025** — Iranian filmmaker *Ramin Hosseinpour* wins **Top Honors** at the **New York International Film Awards (NYIFA)** for his short film *Sculpture*.
